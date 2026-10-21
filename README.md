@@ -16,9 +16,9 @@
 
 ---
 
-### 🎸 afk
+### 🫥 afk
 
-- ⚔️ losing MMR in **Dota 2** (invoker enjoyer) & loving **Sekiro**
+- ⚔️ losing MMR in **Dota 2** (invoker enjoyer) & loving **Sekiro**(currently 5th playthrough)
 - 🎧 massive audio nerd (forever tweaking EQ & collecting FLACs)
 - 🎸 playing guitar and bass
 
