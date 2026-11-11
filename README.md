@@ -2,7 +2,7 @@
 
 💻 **software dev apprentice** in Digitec Galaxus AG based in switzerland 🇨🇭  
 
-🐧 im using **arch** btw
+🐧 i use **arch** btw
 
 🛠️ building cool stuff, breaking it, and figuring out why it broke  
 
